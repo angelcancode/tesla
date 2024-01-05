@@ -1,4 +1,4 @@
 <!-- SOCIALS --!>
 
 TikTok @codingwithangel ||
-Instagram @coding.withangel || 
+Instagram @coding.withangel
